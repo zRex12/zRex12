@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zRex12
+- 👀 I’m interested in CS:GO mods
+- 🌱 I’m currently learning how to do CS mods without problem
+- Dont Ask Just Listen
